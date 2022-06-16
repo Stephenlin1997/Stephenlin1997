@@ -1,5 +1,5 @@
 - 👋 Stephen
-- 👀 SJSU graduating Senior 
+- 👀 Northeastern University
 - 📫 fortunelin@hotmail.com
 
 
